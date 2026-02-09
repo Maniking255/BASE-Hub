@@ -7,3 +7,4 @@ daily base trx krna...
 deploye contrect or swap on base chain 
 good morning dear all
 hold your wallet base or USDC , and collect roll
+good luck all
